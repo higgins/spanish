@@ -1,6 +1,22 @@
 # spanish
 Raw dogging las notas de mi clase de espanol
 
+## July 9, 2025
+
+gritar -- scream
+sonrir - smile
+agripada -- sick
+enseguida -- often
+gira -- spin
+abecedario -- alphabet
+abecedario cancion -- https://www.youtube.com/watch?v=BD9ULInjZTs
+vocales -- vowels
+teclado -- keyboard
+"eu" -- como "what?"
+b vs v -- "beh grande vs beh chica"
+ahorcado -- hanged
+deletrear -- spell
+"lo puedes que deletrear" -- "can you spell it for me?"
 
 ## July 2, 2025
 brincar -- jump
