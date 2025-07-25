@@ -1,6 +1,12 @@
 # spanish
 Raw dogging las notas de mi clase de espanol
 
+## July 23, 2025
+paracer --
+
+## July 16, 2025
+ausente -- magic castle
+
 ## July 9, 2025
 
 gritar -- scream
