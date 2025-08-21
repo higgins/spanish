@@ -1,6 +1,8 @@
 # spanish
 Raw dogging las notas de mi clase de espanol
 
+## July 30, 2025
+
 ## July 23, 2025
 paracer --
 
