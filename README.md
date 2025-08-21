@@ -1,6 +1,33 @@
 # spanish
 Raw dogging las notas de mi clase de espanol
 
+## August 20, 2025
+bronca -- argument
+pleito -- argument
+aunque -- although
+competencia -- competition
+amigable --
+guantes -- gloves
+yerno -- son in law
+ocupado -- busy
+investigacion -- research
+
+"Me gustaN LOS coches" -- conjugate gustar to "ellos" when plural
+"A Ricardo le gusta la fiesta" -- The party is pleasing to him / Ricardo likes the party
+"A Ricardo le gustan las fiestas" -- Parties are pleasing to him / Ricardo likes parties
+
+anillo -- ring
+
+"safo!" -- como "No it!"
+
+"Que vas a hacer..." --
+
+tener prisa --
+
+Tarea:
+
+
+
 ## July 30, 2025
 
 ## July 23, 2025
