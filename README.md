@@ -1,6 +1,219 @@
 # spanish
 Raw dogging las notas de mi clase de espanol
 
+## Decimbre 2, 2025
+"a que hora te lavas los dientes" -- more commun de "cepillar"
+entres de semana -- weekdays
+atreverse -- to dare to do something
+encontrarse -- to meet
+imaginarse -- to imagine
+vestirse -- to get dressed
+relajarse -- to relax
+
+tener -- tengo
+decir -- digo
+hacer -- hago
+oir -- oigo
+poner -- pongo
+salir -- salgo
+traer -- traigo
+venir -- vengo
+ver -- veo
+
+Voy a ver una pelicula -- I'm going to watch a movie
+
+--------
+1. Yo voy ducharme
+2. Vamos a sentarnos
+3. Va a afeitarse
+4. Van a acostarse
+5. Alma va a quitarse
+--------
+
+
+## Octubre 14, 2025
+las comparisiones
+mejor/peor -- better/worst
+mejores/peores -- (plural) better / worst
+"...son que los de taco bell"
+carretera -- road (como Carretera 5, I-5)
+sustantivos -- nouns
+"mas de cuatro" -- usa "de" cuando usas numeros
+"juega mas que" -- usa "que" cuando usas verbos
+jubilado -- retired
+"tan inteligente como" -- adjectivos
+hacen tanto ejercisio
+mi pareja -- my partner
+
+Un dia sina hablar con amigos es tan peor como una noche sin dormir
+Un examen es menos de divertido que todos los otros
+Un abuelo es mayor que un hijo
+Una pelicula comica es tan mejor como una pelica romantica
+
+"jorge estudia tanto como luis"
+"Alberto es tan mayor como carmen"
+"Alonso es tan alto que Marco"
+simpatico -- nice
+
+
+la familia ramirez
+  padres: miguel y daniela
+  hijos: carmen 8, Veronica 6 (2 anos carmen), luisa 2 anos
+
+la familia suarez
+  padres: guillermo y marta
+  hijos: maria 3 anos, jose tiene 7 anos
+
+la famila guzman
+  julio y paula
+
+cachora -- puppy
+simpatica --
+largo -- larguisimo
+feliz -- felicisimo
+
+
+## October 7, 2025
+apellidos -- last names
+twins -- mellizos
+-astro suffix -- step-relationships
+la madrastra -- stepmother
+el padrastro -- stepfather
+se llaman -- their names
+
+====
+Karmel Reeves --
+irish triplets --
+isaac y thai
+tiene dos peritos -- honor y titan, 2.5 year (pastor aleman)
+litter --
+
+====
+
+cuñada -- sister-in-law
+bombero -- fire fighter
+psicólogo -- psychiatrist
+pintor -- painter
+abogado -- lawyer
+a que te dedicas -- what do you do for a living
+
+===
+Aksana --
+Belerusia --
+45
+sicologa escolar -- trabajor
+psicologia
+
+===
+
+
+
+
+## September 30, 2025
+sí -- yes (con fuerte)
+leventarse -- to get up
+me leventa -- i get myself up
+
+--
+"a que hora te leventas" -- seis en la manana (banin), seis (jordan)
+"a que hora te acuestas" -- once de la noche, once y media (jordan)
+--
+ahi/alli -- there
+alla / aquella -- over there
+aquel / aquella -- that one
+gorra -- cap (baseball cap)
+bienes raices -- real estate
+rusia -- russia
+el mapa -- map (masculino)
+
+--
+aquella mochilla es roja
+este escritorio es amarillo
+eso pelo es rubia
+aquellos libros son amarijos
+este escritorio es verde
+este piso es morado
+aquel boligrafo es negro
+
+--
+
+a veces -- sometimes
+entre a las seis a las once -- between six and eleven
+
+--
+A que hora desayunas? -- 9 (kaya),
+...comes? -- doce (kaya)
+...cenas? -- seis y media (kaya)
+--
+
+tarea
+
+
+## September 23, 2025
+dolores = aches/pains
+dólares = dollars
+recodar = remember
+soler   = to tend (to do something)
+"no va a trabajar" -- si tiene "no" en la respuesta, empeiza con esa
+soñar   = to dream
+volver  = to return
+
+"entre semana" = during the week
+
+
+volver -- "the boot rule"
+
+vuelvo  | volvemos
+vuelves | volveis
+         ∟ ---------
+vuelve  | vuelven
+
+
+acostarse -- to go to bed
+almorzar  -- to eat lunch
+contar    -- to count
+costar    -- to cost
+dormir    -- to sleep
+encontrar -- to find
+
+
+
+
+-----
+tarea -- hay mucho trick questions este semana
+
+si -- maribel se puede correr cuatro millas
+no -- maribel no puede leer en el autobobus
+
+no -- jordan no se puede leer en el autobus
+no -- jordan se puede cocinar comida china
+
+----
+Tarea -- once preguntas
+
+---- Spanish II
+
+## September 03, 2025
+escavar -- dig
+anteayer -- day before yesterday
+su amiga es graciosa -- "their friend is funny"
+por/en -- through/during
+reto -- challenge
+
+
+Un dia, dos estudiantes
+
+Habia una vez, hay una mujer la universidad. Ella se llame Maria. Pelo lacio y negro.
+
+tarea --
+libro 74-84, 96-97
+powerpoint
+
+al vocabulario 10a, 10b
+quiz 2
+optional, practica la gramatica 10
+
+
 ## August 20, 2025
 bronca -- argument
 pleito -- argument
@@ -25,7 +238,12 @@ anillo -- ring
 tener prisa --
 
 Tarea:
-
+Book 54-57,494-495,58,61-62
+Power Point (we skipped)
+Tarea 8
+Al Gramatica 8a,8b
+optional
+Practica 8
 
 
 ## July 30, 2025
