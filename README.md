@@ -1,6 +1,43 @@
 # spanish
 Raw dogging las notas de mi clase de espanol
 
+## Enero 27, 2026
+Concecta 3 4A Gustar DO --
+
+### vocabulario
+quehaceres -- chores
+graciosa
+
+when using a person, use "A __persona__ le gustan"
+when seeing infinitivo, always use "gusta"
+
+gustar = o' -- singular
+  me gusto
+  te gusto
+  le gusto
+
+gustar = aron -- plural
+
+
+El pronombre directo -- Directo object pronoun
+Juan come pescado
+Juan lo come -- Juan eats it
+
+
+Voy a lavar la ropa
+  - la voy a lavar
+  - voy a lavarla
+lo mismo
+
+duraznos -- peaches
+mejilones -- muscles (food)
+plums -- ciruelas
+vieiras -- clams
+ostras -- oysters
+el quinto exportado -- the fifth exported
+una pista -- a clue
+trepar -- to climb
+
 ## Decimbre 2, 2025
 "a que hora te lavas los dientes" -- more commun de "cepillar"
 entres de semana -- weekdays
