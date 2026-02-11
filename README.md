@@ -1,6 +1,28 @@
 # spanish
 Raw dogging las notas de mi clase de espanol
 
+## Febrero 10, 2026
+barbaro -- barbarian
+divertirse -- yo me divierto, tu te diviertes, mis hermanos se divirtieron
+antro -- como discoteca
+enhorabuena -- felicidades
+te cuento -- let me tell you...
+brindis -- dije: "cheen cheen"
+la cabalgata de reyes -- cavalcade aka horse parade
+
+
+
+## Febrero 3, 2026
+"acabo de ..." -- I just -- "acabo de cenar"
+asiaticas -- asian
+emparejar -- to match
+se cuelga -- it is hung
+cualquier -- any
+una bodega -- winery
+maceramos -- marinade
+madrina -- godmother
+la lisina --
+
 ## Enero 27, 2026
 Concecta 3 4A Gustar DO --
 
