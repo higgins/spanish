@@ -60,6 +60,39 @@ el quinto exportado -- the fifth exported
 una pista -- a clue
 trepar -- to climb
 
+
+## Enero 13, 2025
+agua dulce --
+algo asi por de estillo -- "something like that"
+mantel -- tablecloth
+el bol -- bowl
+cuchara -- spoon
+cuchillo -- knife
+tenedor -- fork
+anteayer -- the day before yesterday
+el resto -- the rest (as in "the rest of them")
+e, aste, o, amos, aron -- preterito (-ar)
+i, iste, io, imos, ieron -- preterito (-er)
+i, iste, io, imos, ieron -- preterito (-ir)
+-car, -gar, -zar -- yo = qu, gu, c,
+resedente estudiantil -- student housing
+
+## Enero 06, 2025
+stubborn -- terco
+tener ganas de _verbo_ == to feel like + verbo
+te apetece tomar un cafe == do you wish...
+el bizcocho -- cake (like breakfast cake)
+el perejil -- parsley
+slice -- rebanada
+tomate u otras -- tomato AND others
+
+## Decimbre 16, 2025
+pariente -- relative
+rascacielos -- sky scrapers
+tu oyes eso? -- oir
+jamas -- never
+
+
 ## Decimbre 2, 2025
 "a que hora te lavas los dientes" -- more commun de "cepillar"
 entres de semana -- weekdays
