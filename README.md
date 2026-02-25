@@ -1,5 +1,29 @@
 # spanish
 Raw dogging las notas de mi clase de espanol
+=== El libro esta fisica es mas de 12 paginas de el libro digital===
+
+## Febrero 17, 2026
+te agradezco -- i thank you / i appreciate it
+le agradezco -- i thank you / i appreciate it
+estoy agradecido -- i am grateful
+no hay de que -- you're welcome / don't mention it
+les agradezco -- i thank you / i appreciate it (plural "you")
+su apoyo -- your support
+apoyar -- to support
+que lastima -- what a pity
+envolver -- to wrap
+las tumbas -- tombs
+difuntos -- deceased
+haber -- to have, there is, there are
+gusto/gustaron -- me gusto la pelicula, me gustaron las peliculas
+va a gustar / van a gustar -- te va a gustar eso video juego, te van a gustar estos video juegos
+
+== ir, ser, ver -- irregular en imperfecto
+ir  -- iba, ibas, iba, iban
+ser -- era, eras, era, eramos, eran
+ver -- veia, veias, veia, veiamos, veian
+
+
 
 ## Febrero 10, 2026
 barbaro -- barbarian
