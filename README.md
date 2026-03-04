@@ -2,6 +2,27 @@
 Raw dogging las notas de mi clase de espanol
 === El libro esta fisica es mas de 12 paginas de el libro digital===
 
+## Marzo 3, 2026
+eneldo -- dill
+seguir -- continue
+supuestamente -- supposedly
+humildemente -- humbly
+to sit -- sentar
+
+
+object indirecto --
+me, te, le, nos, (os), LES
+
+
+== como gustar ==
+apetecer
+encantar -- a mi me encantan las fiestas, nos va a encantar, nos van a encantar
+fascinar
+importar
+interesar
+molestar
+parecer
+
 ## Febrero 17, 2026
 te agradezco -- i thank you / i appreciate it
 le agradezco -- i thank you / i appreciate it
