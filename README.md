@@ -2,16 +2,34 @@
 Raw dogging las notas de mi clase de espanol
 === El libro esta fisica es mas de 12 paginas de el libro digital===
 
+## Marzo 10, 2026
+Reciprocal verbs indicate action is happening on both subjects
+Ellos se abrazon -- They hold each other
+
+Reflexive are done on oneself.
+
+prueba --
+atraer el amor --
+gradue bachillerato --
+derretida --
+la feria de abril --
+gandado -- livestock
+
+
 ## Marzo 3, 2026
 eneldo -- dill
 seguir -- continue
 supuestamente -- supposedly
 humildemente -- humbly
 to sit -- sentar
+regar -- to water (plants)
+
 
 
 object indirecto --
 me, te, le, nos, (os), LES
+
+object indirecto -- wtf
 
 
 == como gustar ==
