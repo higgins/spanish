@@ -2,6 +2,12 @@
 Raw dogging las notas de mi clase de espanol
 === El libro esta fisica es mas de 12 paginas de el libro digital===
 
+## Marzo 24, 2026
+"se impersonal" -- use "se" when describing people in general
+medio hermano -- step brother
+
+--- Espanol IV
+
 ## Marzo 10, 2026
 Reciprocal verbs indicate action is happening on both subjects
 Ellos se abrazon -- They hold each other
