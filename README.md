@@ -2,6 +2,23 @@
 Raw dogging las notas de mi clase de espanol
 === El libro esta fisica es mas de 12 paginas de el libro digital===
 
+## Marzo 31, 2026
+prenda -- clothing (como roping)
+plateado -- silver
+vestido -- dress (not vestida)
+pantelon liso -- plain pants
+pantelon de cuadro -- plaid pants
+impermeable -- rain jacket
+esmoquin -- smoking jacket
+letera -- letter
+me queda o me quedan -- it fits me, they fit me
+apretado -- tight
+
+### el preterito imperfecto
+-- -car/-gar/-zar -> -que/-gue/-ce
+
+
+
 ## Marzo 24, 2026
 "se impersonal" -- use "se" when describing people in general
 medio hermano -- step brother
