@@ -2,6 +2,38 @@
 Raw dogging las notas de mi clase de espanol
 === El libro esta fisica es mas de 12 paginas de el libro digital===
 
+## Abril 28, 2026
+mudarme -- to move
+recorrer -- travel
+hubilacion -- retirement
+los acantilados -- the cliffs
+conozco mas que todo -- i know more than anything...
+reúne -- brings together
+paisaejs -- landscapes (countrysides?)
+despejado -- clear
+sin embargo --
+ambos -- both
+quemadura -- sunburn
+no doblar -- do not bend
+no pisar al cesped -- keep off the grass
+puño -- fist
+respetar --
+ser cortés -- to be courteous
+
+
+## Abril 14, 2026
+frequentement -- frequently
+los apuntes -- the notes
+
+If you're giving an excuse --> use the preterite
+---
+El pronombre directo
+
+Le y Les change to "Se" when before a "l" sound (lo, la, los, las)
+
+
+
+
 ## Marzo 31, 2026
 prenda -- clothing (como roping)
 plateado -- silver
